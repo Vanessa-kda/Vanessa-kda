@@ -8,5 +8,5 @@ Olá! Eu sou a Vanessa Araujo.
 
 ⚡ Curiosidade: Sou apaixonada por aprendizado e adoro descobrir padrões ocultos nos dados!
 
-📫 Você pode entrar em contato comigo através do meu e-mail: Vanessa.diasdearaujo123@gmail.com
+📫 Adoraria trocar ideias e aprender com outros entusiastas da análise de dados! https://www.linkedin.com/in/vanessa-karoline-/
 
